@@ -1,0 +1,2 @@
+Hello welcome to soccer trivia!(Worldcup Edition)
+This test out some of your knowledge on the world cups from the years 2006-2022 These are not easy questions so good luck.I guarantee you that you would only get these right if you know ball.So Good luck Jit!
